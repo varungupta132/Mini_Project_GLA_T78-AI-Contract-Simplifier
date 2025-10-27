@@ -1,0 +1,1 @@
+# Mini_Project_GLA_T78-AI-Contract-Simplifier
